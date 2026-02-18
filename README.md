@@ -74,7 +74,9 @@ I'm currently available for freelance engagements and open to joining a team on 
 
 If that sounds like you or your team, I'd like to hear from you.
 
-**Contact:** TG: @sebidelamata X: @Sebi_de_la_Mata
+**Contact:** 
+  - TG: [@sebidelamata](https://t.me/sebidelamata)
+  - X: [@Sebi_de_la_Mata](https://x.com/Sebi_de_la_Mata)
 
 ---
 
